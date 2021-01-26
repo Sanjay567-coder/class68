@@ -1,4 +1,4 @@
-Story*****
+*****Story*****
 
 Once upon a time in a very big Jungle. There was a Monkey who resited on a Berry Tree.
 Which was on the Banks of a River. In the River there lived a Crocodile and His Wife....
